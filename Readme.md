@@ -1,2 +1,2 @@
-Pravahini's Repository and the collaborators of this repo are Pratham and Rajat
+Pravahini's Repository and the collaborators of this repo are Pratham and Rajat.
 
